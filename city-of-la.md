@@ -4,5 +4,5 @@ City of LA
   - Eagle Rock
   
 Places to eat
-
+  - Try Taco Spot on Colorado Blvd in Eagle Rock!
 Things to do
