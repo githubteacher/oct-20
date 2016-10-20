@@ -6,6 +6,7 @@ BJs near the 5 freeway has good pizza and beer.
 
 ### Things to see
 St Josephs Hospital, where I was born.  I don't recall the building or room number tho, so search around.
+Check out Warner Bros, they have a tour as well.
 
 ### Things to do
 Visit Universal Studios
