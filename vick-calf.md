@@ -1,6 +1,6 @@
  ## Places to Eat
 
- ### pgace to visit
+ ### place to visit
 
 #### Places to Go
 
