@@ -5,4 +5,4 @@ Arroyo Chop House for good steak!
 
 ### Things to do
 Shopping @ old town Pasadena
-Huntington Library 
+Huntington Library
