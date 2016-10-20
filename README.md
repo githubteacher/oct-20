@@ -2,8 +2,8 @@
 
 - October 10-21, 2016
 - Facilitators:
-- Briana Swift (@brianamarie)
-- Cynthia Rich (@crichID)
+  - Briana Swift (@brianamarie)
+  - Cynthia Rich (@crichID)
 
 ## Resources
 
