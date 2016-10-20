@@ -1,4 +1,8 @@
 ## Additions for Santa Monica
 
-- [ ] Places to eat
-- [ ] Things to do
+# Places to eat
+- Sam's By the Beach
+- Amici Restaurante
+
+# Things to do
+- Rollerblading on the Beach
