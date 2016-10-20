@@ -1,7 +1,6 @@
  ## Places to Eat
 
- ### place to vbsit
-
+ ### place to Visit
 
 #### Places to Go
 
