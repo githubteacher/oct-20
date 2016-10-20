@@ -2,7 +2,7 @@
 
  ## Places to Eat
 
- ### place to visit
+ ### plale to visit
 
 #### Places to Go
 
