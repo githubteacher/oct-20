@@ -3,6 +3,7 @@
 ### Places to eat
 - City Cafe
 - Canyon City BBQ
+- Congregation
 
 ### Things to do
 - Hiking
